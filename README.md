@@ -6,3 +6,7 @@
 - I like to drink coffee with sweet snack!
 - Smelling scent of coffee is my favorite way!
 - walk and enjoy dark coffee in the morning!
+- I like to drink siphon coffee with chocolates
+- Sit back, relax, and enjoy.
+
+
